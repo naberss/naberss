@@ -3,17 +3,17 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=naberss&label=Profile%20views&color=0e75b6&style=flat" alt="naberss" /> </p>
 
--  I’m currently working on [PagSeguro](https://pagseguro.uol.com.br/campanha/maquinas-de-cartao/moderninhas.html?utm_source=bing&utm_medium=o&utm_campaign=376703509-_1275434203298462&utm_content=79714747947905&utm_term=pagseguro-_p#rmcl)
+💳 -  I’m currently working on [PagSeguro](https://pagseguro.uol.com.br/campanha/maquinas-de-cartao/moderninhas.html?utm_source=bing&utm_medium=o&utm_campaign=376703509-_1275434203298462&utm_content=79714747947905&utm_term=pagseguro-_p#rmcl)
 
--  and the automaker [Stellantis](https://www.stellantis.com/en)
+🚗 -  and the automaker [Stellantis](https://www.stellantis.com/en)
 
--  I've also have worked at [Tribunal de Justiça do Estado da Bahia](http://www5.tjba.jus.br/portal/)
--  and [Conexos](https://conexos.com.br/), a business management company
--  If you want to see my projects, you can acess my [portfolio](linkdoportfolio)
+⚖️ -  I've also have worked at [Tribunal de Justiça do Estado da Bahia](http://www5.tjba.jus.br/portal/)
+🖥️ -  and [Conexos](https://conexos.com.br/), a business management company
+📝 -  If you want to see my projects, you can acess my [portfolio](linkdoportfolio)
 
--  And you can reach me in this e-mail lucas-berto@hotmail.com
+📧 -  And you can reach me in this e-mail lucas-berto@hotmail.com
 
--  But if you want to have more information about me, you can check my [LinkedIn](https://www.linkedin.com/in/lucas-moreira-4b1b93163/)
+💁‍♂️ -  But if you want to have more information about me, you can check my [LinkedIn](https://www.linkedin.com/in/lucas-moreira-4b1b93163/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
