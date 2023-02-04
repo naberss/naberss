@@ -13,7 +13,7 @@
 
 📧 -  You can reach me sending [e-mails](lucas-berto@hotmail.com)
 
-💁‍♂️ -  But if you want to have more information about me, you can check my [LinkedIn](https://www.linkedin.com/in/lucas-moreira-4b1b93163/)
+💁‍♂️ -  And if you want to have more information about me, you can check my [LinkedIn](https://www.linkedin.com/in/lucas-moreira-4b1b93163/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
