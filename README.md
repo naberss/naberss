@@ -8,7 +8,9 @@
 🚗 -  and the automaker [Stellantis](https://www.stellantis.com/en)
 
 ⚖️ -  I've also have worked at [Tribunal de Justiça do Estado da Bahia](http://www5.tjba.jus.br/portal/)
+
 🖥️ -  and [Conexos](https://conexos.com.br/), a business management company
+
 📝 -  If you want to see my projects, you can acess my [portfolio](linkdoportfolio)
 
 📧 -  And you can reach me in this e-mail lucas-berto@hotmail.com
