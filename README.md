@@ -1,5 +1,5 @@
 <h1 align="center"> Hello! my name is Lucas Bernabe Moreira Berto</h1>
-<h3 align="center">I am a Software Engineer focused on backend with 5 years of professional experience.</h3>
+<h3 align="center">I am a Software Engineer focused on back end with 5 years of professional experience.</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=naberss&label=Profile%20views&color=0e75b6&style=flat" alt="naberss" /> </p>
 
