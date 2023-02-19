@@ -11,7 +11,7 @@
 
 🖥️ -  and the business management company [Conexos](https://conexos.com.br/)
 
-📧 -  You can reach me sending e-mails to (lucas-berto@hotmail.com)
+📧 -  You can reach me sending e-mails to [lucas-berto@hotmail.com](lucas-berto@hotmail.com)
 
 💁‍♂️ -  And if you want to have more information about me, you can check my [LinkedIn](https://www.linkedin.com/in/lucas-moreira-4b1b93163/)
 
