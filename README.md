@@ -3,13 +3,13 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=naberss&label=Profile%20views&color=0e75b6&style=flat" alt="naberss" /> </p>
 
-💳 -  I’m currently working on [PagSeguro](https://pagseguro.uol.com.br/campanha/maquinas-de-cartao/moderninhas.html?utm_source=bing&utm_medium=o&utm_campaign=376703509-_1275434203298462&utm_content=79714747947905&utm_term=pagseguro-_p#rmcl)
+💳 -  Working on [PagSeguro](https://pagseguro.uol.com.br/campanha/maquinas-de-cartao/moderninhas.html?utm_source=bing&utm_medium=o&utm_campaign=376703509-_1275434203298462&utm_content=79714747947905&utm_term=pagseguro-_p#rmcl)
 
-🚗 -  and the automaker [Stellantis](https://www.stellantis.com/en)
+🚗 -  And also in [Stellantis](https://www.stellantis.com/en)
 
-⚖️ -  I've also have worked at [Tribunal de Justiça do Estado da Bahia](http://www5.tjba.jus.br/portal/)
+⚖️ -  I've alredy worked at [Tribunal de Justiça do Estado da Bahia](http://www5.tjba.jus.br/portal/)
 
-🖥️ -  and [Conexos](https://conexos.com.br/), a business management company
+🖥️ -  and the business management company [Conexos](https://conexos.com.br/)
 
 📧 -  You can reach me sending e-mails to (lucas-berto@hotmail.com)
 
